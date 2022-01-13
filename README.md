@@ -1,2 +1,2 @@
-This is the only official place to get RoseGoldAddons updates.
-Anything else claiming to have them is lying.
+join the discord for changelog
+https://discord.gg/Tmk2hwzdxm
